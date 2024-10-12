@@ -1,0 +1,3 @@
+Penutupan: Kesimpulan Petualangan
+Bab 1: Mengingat Kembali Petualangan
+Saat matahari mulai terbenam dan langit berubah menjadi oranye keemasan, Kancil memutuskan untuk pulang. Sepanjang perjalanan pulang, Kancil merenung tentang semua yang telah ia lalui hari ini. Ia mengingat kembali perjalanannya melalui hutan lebat, pertemuannya dengan Harimau Tua yang ramah, perjuangannya menyeberangi sungai yang deras, dan persahabatannya dengan Pak Tani serta Kelinci. Semua pengalaman itu terasa seperti mimpi yang indah. Kancil merasa bangga karena berhasil menyelesaikan petualangan ini dengan baik. "Ini adalah salah satu hari terbaik dalam hidupku," pikirnya dengan senyuman di wajah.
