@@ -1,0 +1,3 @@
+4. Kancil Mampir ke Kebun
+Bab 4.1: Menemukan Kebun Sayur
+Setelah berhasil menyeberangi sungai, Kancil melanjutkan perjalanannya hingga tiba di sebuah kebun yang luas. Kebun ini penuh dengan tanaman sayur yang tumbuh subur. Ada wortel, kangkung, bayam, tomat, dan masih banyak lagi. Kancil yang sejak tadi merasa lapar, matanya langsung berbinar melihat kebun ini. "Wah, ini seperti surga bagi perutku!" pikirnya sambil tersenyum. Meskipun ia tahu kebun ini mungkin milik seseorang, Kancil tidak bisa menahan diri untuk tidak memetik satu atau dua wortel yang tampak sangat segar. Sambil memakan wortel-wortel itu, Kancil merasa energinya kembali pulih dan ia mulai menikmati kebun yang indah ini.
